@@ -1,4 +1,4 @@
-Ingredients:
+# Ingredients:
 For the sauce:
 1/4 cup low-sodium soy sauce
 2 tablespoons oyster sauce

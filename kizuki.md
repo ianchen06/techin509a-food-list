@@ -13,5 +13,11 @@ If you're a ramen enthusiast, Kizuki Ramen is a must-visit spot that promises an
 
 - **Friendly and Knowledgeable Staff**: The staff at Kizuki Ramen are friendly, attentive, and always willing to help with recommendations or any inquiries you may have. They enhance the overall dining experience with their excellent service.
 
-So, if you're in the mood for a genuine and delicious ramen experience, Kizuki Ramen should definitely be on your list of places to visit. Enjoy the comforting flavors and immerse yourself in the rich Japanese ramen culture!
-```
+Service options: Dine-in · Takeout · No-contact delivery
+Located in: Three20 Apartments
+Address: 320 E Pine St, Seattle, WA 98122
+Hours: 
+Open ⋅ Closes 9:30 PM
+Takeout: Now ⋅ Ends 2:30 AM · More hours
+Menu: kizuki.com
+Phone: (425) 553-0867

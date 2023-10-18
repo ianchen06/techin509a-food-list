@@ -1,0 +1,3 @@
+Steak: Pho bo is traditionally made with thinly sliced steak that is cooked in the simmering broth in each individual serving bowl. In order to very thinly slice the steak, I recommend popping the steak in the freezer for about 45-60 minutes, then slicing it against the grain as thinly as possible. (Alternately, you can ask the butcher to thinly slice your steak for you, or add pre-cooked steak to your soup.)
+
+Thin rice noodles: Pho is traditionally made with thin rice noodles, such as these. In order to prevent the noodles from overcooking in the broth, it’s traditional to cook pho noodles separately on their own. Then the noodles will be added to each individual serving bowl, followed by the protein, hot broth and toppings.

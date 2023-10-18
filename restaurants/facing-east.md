@@ -3,7 +3,7 @@
 If you're in the mood for authentic and delicious Taiwanese cuisine in Bellevue, **FacingEast** is the place to be. This restaurant offers a delightful culinary journey with a wide range of dishes that will tantalize your taste buds.
 
 ## Must-Try Dishes
-- **Taiwanese Pork Burger: Taiwanese Pork Burger, or "Gua Bao," is a delectable street food that combines tender, savory braised pork belly with a sweet steamed bun for a perfect harmony of flavors and textures.
+- **Taiwanese Pork Burger**: Taiwanese Pork Burger, or "Gua Bao," is a delectable street food that combines tender, savory braised pork belly with a sweet steamed bun for a perfect harmony of flavors and textures.
 - **Beef Noodle Soup**: A comforting and hearty dish featuring tender beef and flavorful broth.
 - **Bitter Melon with Salted Duck Egg**: A combination of the slightly bitter, crunchy texture of the melon with the rich, savory, and briny qualities of the salted duck egg.
 

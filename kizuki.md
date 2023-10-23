@@ -15,11 +15,11 @@ If you're a ramen enthusiast, Kizuki Ramen is a must-visit spot that promises an
 
 # Store Information
 
-- **Service options: Dine-in · Takeout · No-contact delivery
-- **Located in: Three20 Apartments
-- **Address: 320 E Pine St, Seattle, WA 98122
-- **Hours: 
-- **Open ⋅ Closes 9:30 PM
-- **Takeout: Now ⋅ Ends 2:30 AM · More hours
-- **Menu: kizuki.com
-- **Phone: (425) 553-0867
+- Service options: Dine-in · Takeout · No-contact delivery
+- Located in: Three20 Apartments
+- Address: 320 E Pine St, Seattle, WA 98122
+- Hours: 
+- Open ⋅ Closes 9:30 PM
+- Takeout: Now ⋅ Ends 2:30 AM · More hours
+- Menu: kizuki.com
+- Phone: (425) 553-0867

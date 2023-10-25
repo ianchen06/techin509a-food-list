@@ -1,4 +1,5 @@
-# Burger King - The Whopper's Kingdom
+# Best Burger King - The Whopper's Kingdom
+
 
 When craving a delectable and familiar fast-food experience, **Burger King** stands as a top contender. Recognized worldwide, this fast-food giant has been dishing out mouth-watering and budget-friendly meals for many years.
 
